@@ -1,1 +1,0 @@
-# gradani research blog
